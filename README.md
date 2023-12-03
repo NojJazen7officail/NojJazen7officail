@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NojJazen7officail
+So what is a scpak resources will it is simple program that belongs to a videogame named survivalcraft And also survivalcraft day one has openAL sound effects in the versions it self and keep in mind that openal is used for only on survivalcraft demo and survivalcraft 2 full ect from candy rufes if you don't know candy rufes games will candy rufes games made survivalcraft and also the owner of rufles conpust wich is a free game of candy rufed
